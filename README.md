@@ -1,6 +1,6 @@
 <h2>喵物次元官网，二次元文化交流综合平台|网页版入口|下载</h2>
 <p>喵物次元是一个以二次元文化为核心，集动漫资源、资讯分享、社区互动于一体的综合性平台。用户可以通过该平台观看高清动漫、浏览最新漫画章节、参与社区讨论，甚至上传自己的同人作品。此外，喵物次元还提供个性化推荐，根据用户的兴趣和历史浏览记录，智能推荐相关的内容，帮助用户发现更多感兴趣的作品。平台的界面设计简洁美观，操作流畅，适合不同年龄段的用户使用。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5710.html" target="_blank"><strong>喵物次元官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://miaowuciyuan.rymdh.com/" target="_blank"><strong>喵物次元官网最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
